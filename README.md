@@ -52,6 +52,7 @@ Some channels may not upload frequently.
 - [Studio StegoRaptor](https://www.youtube.com/@studiostegoraptor)
 - [GrumpsTheMovie](https://www.youtube.com/@grumpsthemovie8521)
 - [ESYTC](https://www.youtube.com/@esytc3201)
+- [Felix Fischer](https://www.youtube.com/@felixfischer6168)
 
 ## Animations
 Under construction
