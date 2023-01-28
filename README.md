@@ -6,6 +6,7 @@ Some channels may not upload frequently.
 - [awesome-grumps](#awesome-grumps)
   - [Main channels](#main-channels)
   - [Compilations](#compilations)
+  - [Animations](#animations)
 
 
 ## Main channels
@@ -38,3 +39,6 @@ Some channels may not upload frequently.
 - [Tal Rimoni](https://www.youtube.com/@TalRimoni)
 - [ukoid](https://www.youtube.com/@ukoid)
 - [zoigoblin](https://www.youtube.com/@zoigoblin)
+
+## Animations
+Under construction
