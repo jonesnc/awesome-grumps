@@ -15,3 +15,4 @@ A list of YouTube channels making Game Grumps-related content
 - [CCTV Studios](https://www.youtube.com/@CCTVStudios)
 - [Grump Clips](https://www.youtube.com/@grumpclips)
 - [smeef](https://www.youtube.com/@blueyoshi7)
+- [ayonihsin](https://www.youtube.com/@ayonihsin5236)
