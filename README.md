@@ -30,5 +30,6 @@ Some channels may not upload frequently.
 - [RazKat](https://www.youtube.com/@RazKat_2023)
 - [smeef](https://www.youtube.com/@blueyoshi7)
 - [sweetavidan](https://www.youtube.com/@sweetavidan)
+- [Tal Rimoni](https://www.youtube.com/@TalRimoni)
 - [ukoid](https://www.youtube.com/@ukoid)
 - [zoigoblin](https://www.youtube.com/@zoigoblin)
