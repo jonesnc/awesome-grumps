@@ -30,3 +30,5 @@ Some channels may not upload frequently.
 - [encéphale ocholocrate](https://www.youtube.com/@encephaleocholocrate7674)
 - [ukoid](https://www.youtube.com/@ukoid)
 - [sweetavidan](https://www.youtube.com/@sweetavidan)
+- [Marcus Yamamoto](https://www.youtube.com/@marcusyamamoto5200)
+- [npcSensei](https://www.youtube.com/@npcSensei)
