@@ -55,4 +55,4 @@ Some channels may not upload frequently.
 - [Felix Fischer](https://www.youtube.com/@felixfischer6168)
 
 ## Animations
-Under construction
+- [Shoocharu](https://www.youtube.com/@shoocharu)
