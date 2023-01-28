@@ -29,3 +29,4 @@ Some channels may not upload frequently.
 - [AppleSauce 3.0](https://www.youtube.com/@ASauce3.0)
 - [encéphale ocholocrate](https://www.youtube.com/@encephaleocholocrate7674)
 - [ukoid](https://www.youtube.com/@ukoid)
+- [sweetavidan](https://www.youtube.com/@sweetavidan)
