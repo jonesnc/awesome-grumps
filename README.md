@@ -40,6 +40,18 @@ Some channels may not upload frequently.
 - [Tal Rimoni](https://www.youtube.com/@TalRimoni)
 - [ukoid](https://www.youtube.com/@ukoid)
 - [zoigoblin](https://www.youtube.com/@zoigoblin)
+- [Featherstone Animation](https://www.youtube.com/@featherstoneanimation2148)
+- [Implosion](https://www.youtube.com/@ImpExp)
+- [Rioza](https://www.youtube.com/@RiozaGames)
+- [JosephK](https://www.youtube.com/@PoopyAnis)
+- [inXecure Gaming](https://www.youtube.com/@inxecuregaming6380)
+- [Mega](https://www.youtube.com/@mega8525)
+- [NuggyTendy](https://www.youtube.com/@nuggytendy9929)
+- [CyberTronX280 // Jimmy Lafazanos](https://www.youtube.com/@CyberTronX280)
+- [such a nobody](https://www.youtube.com/@suchanobody7314)
+- [Studio StegoRaptor](https://www.youtube.com/@studiostegoraptor)
+- [GrumpsTheMovie](https://www.youtube.com/@grumpsthemovie8521)
+- [ESYTC](https://www.youtube.com/@esytc3201)
 
 ## Animations
 Under construction
