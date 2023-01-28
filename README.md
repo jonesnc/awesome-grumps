@@ -16,3 +16,4 @@ A list of YouTube channels making Game Grumps-related content
 - [Grump Clips](https://www.youtube.com/@grumpclips)
 - [smeef](https://www.youtube.com/@blueyoshi7)
 - [ayonihsin](https://www.youtube.com/@ayonihsin5236)
+- [John Odd](https://www.youtube.com/@JohnOdd)
