@@ -17,3 +17,4 @@ A list of YouTube channels making Game Grumps-related content
 - [MatterBoar](https://www.youtube.com/@MatterBoar)
 - [smeef](https://www.youtube.com/@blueyoshi7)
 - [zoigoblin](https://www.youtube.com/@zoigoblin)
+- [GameGrumpsHighlights](https://www.youtube.com/@gamegrumpshighlights4794)
