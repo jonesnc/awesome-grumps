@@ -23,3 +23,4 @@ Some channels may not upload frequently.
 - [MatterBoar](https://www.youtube.com/@MatterBoar)
 - [smeef](https://www.youtube.com/@blueyoshi7)
 - [zoigoblin](https://www.youtube.com/@zoigoblin)
+- [RazKat](https://www.youtube.com/@RazKat_2023)
