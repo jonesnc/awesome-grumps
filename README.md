@@ -1,5 +1,7 @@
 # awesome-grumps
-A list of YouTube channels making Game Grumps-related content
+**A list of YouTube channels making Game Grumps-related content.**
+
+Some channels may not upload frequently.
 
 
 ## Main channels
@@ -19,3 +21,4 @@ A list of YouTube channels making Game Grumps-related content
 - [zoigoblin](https://www.youtube.com/@zoigoblin)
 - [GameGrumpsHighlights](https://www.youtube.com/@gamegrumpshighlights4794)
 - [AliasKateLiza](https://www.youtube.com/@AliasKateLiza)
+- [annalise](https://www.youtube.com/@annalies)
