@@ -3,6 +3,10 @@
 
 Some channels may not upload frequently.
 
+- [awesome-grumps](#awesome-grumps)
+  - [Main channels](#main-channels)
+  - [Compilations](#compilations)
+
 
 ## Main channels
 - [Game Grumps](https://www.youtube.com/@GameGrumps)
