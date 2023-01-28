@@ -27,3 +27,4 @@ Some channels may not upload frequently.
 - [GGM](https://www.youtube.com/@ggm4382)
 - [Grumpy Comps](https://www.youtube.com/@GrumpyComps)
 - [AppleSauce 3.0](https://www.youtube.com/@ASauce3.0)
+- [encéphale ocholocrate](https://www.youtube.com/@encephaleocholocrate7674)
