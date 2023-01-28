@@ -25,3 +25,5 @@ Some channels may not upload frequently.
 - [zoigoblin](https://www.youtube.com/@zoigoblin)
 - [RazKat](https://www.youtube.com/@RazKat_2023)
 - [GGM](https://www.youtube.com/@ggm4382)
+- [Grumpy Comps](https://www.youtube.com/@GrumpyComps)
+- [AppleSauce 3.0](https://www.youtube.com/@ASauce3.0)
