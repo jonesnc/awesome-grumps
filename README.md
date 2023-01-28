@@ -16,6 +16,7 @@ Some channels may not upload frequently.
 - [ayonihsin](https://www.youtube.com/@ayonihsin5236)
 - [CCTV Studios](https://www.youtube.com/@CCTVStudios)
 - [encéphale ocholocrate](https://www.youtube.com/@encephaleocholocrate7674)
+- [Figgy](https://www.youtube.com/@Figgy)
 - [GameGrumpsCompilations](https://www.youtube.com/@GameGrumpsCompilations)
 - [GameGrumpsHighlights](https://www.youtube.com/@gamegrumpshighlights4794)
 - [GGM](https://www.youtube.com/@ggm4382)
