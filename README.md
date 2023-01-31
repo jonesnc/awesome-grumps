@@ -55,4 +55,5 @@ Some channels may not upload frequently.
 - [zoigoblin](https://www.youtube.com/@zoigoblin)
 
 ## Animations
+- [MoeChicken](https://www.youtube.com/@MoeChicken)
 - [Shoocharu](https://www.youtube.com/@shoocharu)
