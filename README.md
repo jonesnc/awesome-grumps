@@ -42,6 +42,7 @@ Some channels may not upload frequently.
 - [Marcus Yamamoto](https://www.youtube.com/@marcusyamamoto5200)
 - [MatterBoar](https://www.youtube.com/@MatterBoar)
 - [Mega](https://www.youtube.com/@mega8525)
+- [Minish Sage](https://www.youtube.com/@minishsage2128)
 - [npcSensei](https://www.youtube.com/@npcSensei)
 - [NuggyTendy](https://www.youtube.com/@nuggytendy9929)
 - [Press Play To Start](https://www.youtube.com/@PressPlayToStart)
