@@ -51,6 +51,7 @@ Some channels may not upload frequently.
 - [RazKat](https://www.youtube.com/@RazKat_2023)
 - [Rioza](https://www.youtube.com/@RiozaGames)
 - [smeef](https://www.youtube.com/@blueyoshi7)
+- [Simon Latchford](https://www.youtube.com/@SimonLatchford)
 - [Studio StegoRaptor](https://www.youtube.com/@studiostegoraptor)
 - [such a nobody](https://www.youtube.com/@suchanobody7314)
 - [sweetavidan](https://www.youtube.com/@sweetavidan)
