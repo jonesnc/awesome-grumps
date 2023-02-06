@@ -32,6 +32,7 @@ Some channels may not upload frequently.
 - [GameGrumpsCompilations](https://www.youtube.com/@GameGrumpsCompilations)
 - [GameGrumpsHighlights](https://www.youtube.com/@gamegrumpshighlights4794)
 - [GGM](https://www.youtube.com/@ggm4382)
+- [GGM 2](https://www.youtube.com/@ggm294)
 - [Grump Clips](https://www.youtube.com/@grumpclips)
 - [Grumpilations](https://www.youtube.com/@Grumpilations)
 - [GrumpsTheMovie](https://www.youtube.com/@grumpsthemovie8521)
