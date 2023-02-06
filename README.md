@@ -1,7 +1,7 @@
 # awesome-grumps
 **A list of YouTube channels making Game Grumps-related content.**
 
-Some channels may not upload frequently.
+Some channels may not upload frequently or no longer create Game Grumps related content
 
 - [awesome-grumps](#awesome-grumps)
   - [Main channels](#main-channels)
