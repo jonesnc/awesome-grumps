@@ -48,6 +48,7 @@ Some channels may not upload frequently.
 - [Minish Sage](https://www.youtube.com/@minishsage2128)
 - [npcSensei](https://www.youtube.com/@npcSensei)
 - [NuggyTendy](https://www.youtube.com/@nuggytendy9929)
+- [Peachy Edits](https://www.youtube.com/@Peachy_Edits)
 - [Press Play To Start](https://www.youtube.com/@PressPlayToStart)
 - [RazKat](https://www.youtube.com/@RazKat_2023)
 - [Rioza](https://www.youtube.com/@RiozaGames)
