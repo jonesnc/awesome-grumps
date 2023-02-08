@@ -51,6 +51,7 @@ Some channels may not upload frequently or no longer create Game Grumps related 
 - [Peachy Edits](https://www.youtube.com/@Peachy_Edits)
 - [Press Play To Start](https://www.youtube.com/@PressPlayToStart)
 - [RazKat](https://www.youtube.com/@RazKat_2023)
+- [Rex Matthews](https://www.youtube.com/@rexmatthews7841)
 - [Rioza](https://www.youtube.com/@RiozaGames)
 - [smeef](https://www.youtube.com/@blueyoshi7)
 - [Simon Latchford](https://www.youtube.com/@SimonLatchford)
