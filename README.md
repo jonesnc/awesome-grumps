@@ -20,6 +20,7 @@ Some channels may not upload frequently or no longer create Game Grumps related 
 - [AppleSauce 3.0](https://www.youtube.com/@ASauce3.0)
 - [ayonihsin](https://www.youtube.com/@ayonihsin5236)
 - [Bman64](https://www.youtube.com/@Bman64)
+- [Bizarro_World](https://www.youtube.com/@bizarro_world9909)
 - [Bummer Drummer](https://www.youtube.com/@BummerDrummer)
 - [CCTV Studios](https://www.youtube.com/@CCTVStudios)
 - [CyberTronX280 // Jimmy Lafazanos](https://www.youtube.com/@CyberTronX280)
