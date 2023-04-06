@@ -46,6 +46,7 @@ Some channels may not upload frequently or no longer create Game Grumps related 
 - [Marcus Yamamoto](https://www.youtube.com/@marcusyamamoto5200)
 - [MatterBoar](https://www.youtube.com/@MatterBoar)
 - [Mega](https://www.youtube.com/@mega8525)
+- [MonkeyO](https://www.youtube.com/@monkeyo5361)
 - [Minish Sage](https://www.youtube.com/@minishsage2128)
 - [npcSensei](https://www.youtube.com/@npcSensei)
 - [NuggyTendy](https://www.youtube.com/@nuggytendy9929)
