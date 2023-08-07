@@ -61,6 +61,7 @@ Some channels may not upload frequently or no longer create Game Grumps related 
 - [such a nobody](https://www.youtube.com/@suchanobody7314)
 - [sweetavidan](https://www.youtube.com/@sweetavidan)
 - [Tal Rimoni](https://www.youtube.com/@TalRimoni)
+- [TaeIsBox](https://www.youtube.com/@TaeIsBox)
 - [ukoid](https://www.youtube.com/@ukoid)
 - [zoigoblin](https://www.youtube.com/@zoigoblin)
 
