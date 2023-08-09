@@ -25,6 +25,7 @@ Some channels may not upload frequently or no longer create Game Grumps related 
 - [CCTV Studios](https://www.youtube.com/@CCTVStudios)
 - [CyberTronX280 // Jimmy Lafazanos](https://www.youtube.com/@CyberTronX280)
 - [Dontevenknow anymore](https://www.youtube.com/@dontevenknowanymore3667)
+- [dimetrodan](https://www.youtube.com/@dimetrodan)
 - [encéphale ocholocrate](https://www.youtube.com/@encephaleocholocrate7674)
 - [ESYTC](https://www.youtube.com/@esytc3201)
 - [Featherstone Animation](https://www.youtube.com/@featherstoneanimation2148)
