@@ -33,6 +33,7 @@ Some channels may not upload frequently or no longer create Game Grumps related 
 - [Figgy](https://www.youtube.com/@Figgy)
 - [GameGrumpsCompilations](https://www.youtube.com/@GameGrumpsCompilations)
 - [GameGrumpsHighlights](https://www.youtube.com/@gamegrumpshighlights4794)
+- [GoofGrumpin](https://www.youtube.com/@GoofGrumpin)
 - [GGM 2](https://www.youtube.com/@ggm294)
 - [GGM](https://www.youtube.com/@ggm4382)
 - [Grump Clips](https://www.youtube.com/@grumpclips)
