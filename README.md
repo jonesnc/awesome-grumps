@@ -24,6 +24,7 @@ Some channels may not upload frequently or no longer create Game Grumps related 
 - [Bummer Drummer](https://www.youtube.com/@BummerDrummer)
 - [CCTV Studios](https://www.youtube.com/@CCTVStudios)
 - [CyberTronX280 // Jimmy Lafazanos](https://www.youtube.com/@CyberTronX280)
+- [DeathMetalJedi](https://www.youtube.com/@Iamthezackster)
 - [Dontevenknow anymore](https://www.youtube.com/@dontevenknowanymore3667)
 - [dimetrodan](https://www.youtube.com/@dimetrodan)
 - [encéphale ocholocrate](https://www.youtube.com/@encephaleocholocrate7674)
