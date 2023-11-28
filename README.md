@@ -52,6 +52,7 @@ Some channels may not upload frequently or no longer create Game Grumps related 
 - [Minish Sage](https://www.youtube.com/@minishsage2128)
 - [MonkeyO](https://www.youtube.com/@monkeyo5361)
 - [npcSensei](https://www.youtube.com/@npcSensei)
+- [NinjaRo](https://www.youtube.com/@ninja.ro_)
 - [NuggyTendy](https://www.youtube.com/@nuggytendy9929)
 - [Peachy Edits](https://www.youtube.com/@Peachy_Edits)
 - [Press Play To Start](https://www.youtube.com/@PressPlayToStart)
