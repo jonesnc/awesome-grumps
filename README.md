@@ -51,6 +51,7 @@ Some channels may not upload frequently or no longer create Game Grumps related 
 - [Mega](https://www.youtube.com/@mega8525)
 - [Minish Sage](https://www.youtube.com/@minishsage2128)
 - [MonkeyO](https://www.youtube.com/@monkeyo5361)
+- [Mostbogus](https://www.youtube.com/@mostbogus648)
 - [npcSensei](https://www.youtube.com/@npcSensei)
 - [NinjaRo](https://www.youtube.com/@ninja.ro_)
 - [NuggyTendy](https://www.youtube.com/@nuggytendy9929)
