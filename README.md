@@ -44,6 +44,7 @@ Some channels may not upload frequently or no longer create Game Grumps related 
 - [Grumpy Comps](https://www.youtube.com/@GrumpyComps)
 - [Implosion](https://www.youtube.com/@ImpExp)
 - [inXecure Gaming](https://www.youtube.com/@inxecuregaming6380)
+- [jessi mai](https://www.youtube.com/@jessimai000)
 - [John Odd](https://www.youtube.com/@JohnOdd)
 - [JosephK](https://www.youtube.com/@PoopyAnis)
 - [Lauhger4ALL](https://www.youtube.com/@Laugher4ALL)
