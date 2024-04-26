@@ -72,7 +72,6 @@ Some channels may not upload frequently or no longer create Game Grumps related 
 - [Tal Rimoni](https://www.youtube.com/@TalRimoni)
 - [TaeIsBox](https://www.youtube.com/@TaeIsBox)
 - [TELIDRO](https://www.youtube.com/@telidro)
-
 - [ukoid](https://www.youtube.com/@ukoid)
 - [zoigoblin](https://www.youtube.com/@zoigoblin)
 
