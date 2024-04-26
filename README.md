@@ -47,6 +47,7 @@ Some channels may not upload frequently or no longer create Game Grumps related 
 - [jessi mai](https://www.youtube.com/@jessimai000)
 - [John Odd](https://www.youtube.com/@JohnOdd)
 - [JosephK](https://www.youtube.com/@PoopyAnis)
+- [Kat](https://www.youtube.com/@a24sapphics)
 - [Lauhger4ALL](https://www.youtube.com/@Laugher4ALL)
 - [LesmoBestOfs](https://www.youtube.com/@LesmoBestOfs92)
 - [Marcus Yamamoto](https://www.youtube.com/@marcusyamamoto5200)
