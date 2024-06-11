@@ -50,6 +50,7 @@ Some channels may not upload frequently or no longer create Game Grumps related 
 - [Kat](https://www.youtube.com/@a24sapphics)
 - [Lauhger4ALL](https://www.youtube.com/@Laugher4ALL)
 - [LesmoBestOfs](https://www.youtube.com/@LesmoBestOfs92)
+- [mahzah](https://www.youtube.com/@mahzah1412)
 - [Marcus Yamamoto](https://www.youtube.com/@marcusyamamoto5200)
 - [MatterBoar](https://www.youtube.com/@MatterBoar)
 - [Mega](https://www.youtube.com/@mega8525)
