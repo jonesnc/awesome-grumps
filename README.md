@@ -18,6 +18,7 @@ Some channels may not upload frequently or no longer create Game Grumps related 
 - [AliasKateLiza](https://www.youtube.com/@AliasKateLiza)
 - [annalise](https://www.youtube.com/@annalies)
 - [AppleSauce 3.0](https://www.youtube.com/@ASauce3.0)
+- [arospacecase](https://www.youtube.com/@arospacecase)
 - [ayonihsin](https://www.youtube.com/@ayonihsin5236)
 - [bea](https://www.youtube.com/@beasclips902)
 - [Bizarro_World](https://www.youtube.com/@bizarro_world9909)
